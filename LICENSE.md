@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure pump.fun sniper bot | volume-spike-detection + trailing-stop, the #1 pump.fun sniper bot. Includes volume-spike-detection and trailing-stop for a
 
 
 
